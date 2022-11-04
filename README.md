@@ -42,3 +42,18 @@ https://youtu.be/vnciwwsvNcc
 [Life of Brian Script - Scene 3: Jesus's Lack of Crowd Control on the Mount (50webs.com)](http://www.montypython.50webs.com/scripts/Life_of_Brian/3.htm)
 
 https://youtu.be/ToYt5SgGDgI
+
+
+
+
+[Life of Brian Script - Scene 4: Stonings and How to Find that Perfect Rock (50webs.com)](http://www.montypython.50webs.com/scripts/Life_of_Brian/4.htm)
+
+http://www.montypython.50webs.com/scripts/Life_of_Brian/5.htm
+
+https://youtu.be/ffwFXGPRDu4
+
+## he has given us a sign
+
+[Life of Brian Script - Scene 18: The Holy Gourd of Jerusalem (50webs.com)](http://www.montypython.50webs.com/scripts/Life_of_Brian/18.htm)
+
+https://youtu.be/Ka9mfZbTFbk
