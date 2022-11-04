@@ -1,6 +1,8 @@
 ## Restaurant Sketch
 WIFE - 4
+
 MAN - 18
+
 WAITER - 6
 HEAD WAITER - 8
 MANAGER - 6
